@@ -1,1 +1,1 @@
-# AkankshaKhose.github.io
+# pratikkhose.github.io
